@@ -1,0 +1,1 @@
+## SEMRush / GSC - Opportunity Analysis w/ Title Scraper 
